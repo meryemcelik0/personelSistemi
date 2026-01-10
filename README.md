@@ -58,6 +58,7 @@ Herhangi bir sorunuz veya öneriniz varsa lütfen benimle iletişime geçin: <br
 **- Tel no:** +90 1111111111 <br/>
 **- E-posta:** meryemcelik@gmail.com
 ## Youtube Video
+Youtube proje tanıtım videosu izlemek için (https://youtu.be/NRq-6DgitbM?si=k978JUulhNZEe8CX)
 
 
 
